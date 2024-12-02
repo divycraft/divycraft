@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **divyanshusharma214@gmail.com**
 
-- ⚡ Fun fact **i am in my 2nd year of college**
+- ⚡ Fun fact **i am in my 3nd year of college**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
